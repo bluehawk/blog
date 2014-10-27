@@ -3,7 +3,7 @@ layout: post
 title: First glass project, small plate
 ---
 
-I don't acutally know what to call this. It's not really a plate... it's about 4 inches and has gently sloped sides so it doesn't hold very much. But it was the first thing I made in my kiln!
+I don't actually know what to call this. It's not really a plate... it's about 4 inches and has gently sloped sides so it doesn't hold very much. But it was the first thing I made in my kiln!
 
 Originally, I didn't buy very much glass, I told myself that I had to actually make something before I could justify spending a bunch of money on glass. Also when I bought my first glass I had no idea what I was doing and everything I got was transparent.
 
